@@ -1,1 +1,0 @@
-# juliocesar-ge.github.io
